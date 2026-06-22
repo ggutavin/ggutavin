@@ -3,4 +3,4 @@
 - Gosto de moda:👘​👗​🥻  ​
 - Adoro brincar com o meu gatinho:🐈‍⬛  ​
 - Sou criativo:🪷  
-- ![](https://tenor.com/pt-BR/view/ladygaga-photo-gif-19378075) 
+- ![](https://tenor.com/pt-BR/view/ladygaga-photo-gif-19378075)  
