@@ -3,4 +3,4 @@
 - Gosto de moda:👘​👗​🥻  ​
 - Adoro brincar com o meu gatinho:🐈‍⬛  ​
 - Sou criativo:🪷  
-- ![](https://tenor.com/pt-BR/view/lady-gaga-poker-face-gif-11205795)
+- ![](https://media.tenor.com/gYWalODZDHkAAAAC/lady-gaga-poker-face.gif)
