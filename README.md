@@ -3,4 +3,4 @@
 - Gosto de moda:👘​👗​🥻  ​
 - Adoro brincar com o meu gatinho:🐈‍⬛  ​
 - Sou criativo:🪷  
-- ![](https://tenor.com/pt-BR/view/lady-gaga-absolute-cinema-absolute-cinema-meme-celebreties-absolute-cinema-gif-16300031105334619460)
+- ![](https://tenor.com/pt-BR/view/ladygaga-photo-gif-19378075)
